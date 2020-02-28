@@ -23,5 +23,5 @@ https://blog.naver.com/shwotjd14
 신한 110-465-142157 (노재화)
 
 외국(Borad)
-Paypal starlightlab14@gmail.com
+PayPal starlightlab14@gmail.com
 </pre>
