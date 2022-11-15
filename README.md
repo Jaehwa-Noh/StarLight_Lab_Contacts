@@ -12,5 +12,5 @@ starlightlab14@gmail.com
 블로그(Blog)
 <pre>
 https://shwoghk14.blogspot.com/
-https://blog.naver.com/shwotjd14
+https://blog.naver.com/shwoghk14/
 </pre>
